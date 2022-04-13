@@ -1,2 +1,0 @@
-# vibyt
-#like and subscribe
